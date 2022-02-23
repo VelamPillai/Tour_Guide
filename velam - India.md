@@ -29,6 +29,12 @@
 
  # external Links about the Places
 
+ # Nagercoil - Paddy Field
+
+ ![Nagercoil](Image/ngl.jpeg)
+
+ # external Links about the Places
+
  ## Vattakotai 
 
  Vattakotai [Vattakotai -click here](https://en.wikipedia.org/wiki/Vattakottai_Fort)
