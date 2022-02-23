@@ -27,8 +27,6 @@
 
  ![Vattakotai](Image/kk4.jpeg)
 
- # external Links about the Places
-
  # Nagercoil - Paddy Field
 
  ![Nagercoil](Image/ngl.jpeg)
