@@ -13,7 +13,9 @@ With the founding of the European region Tyrol-South Tyrol-Trentino the area has
 
 Tirol [homepage](https://www.tirol.gv.at/en/)
 
-### TABLE OF CONTENTS
+
+###![MAP](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.alpenjoy.de%2Fwp-content%2Fuploads%2F2017%2F08%2FTirol-Karte.png&imgrefurl=https%3A%2F%2Fwww.alpenjoy.de%2Furlaubsziel%2Foesterreich%2Ftirol%2F&tbnid=cVUt9I17cUuhkM&vet=12ahUKEwjCn7jFm5b2AhXr7uAKHQaeAEMQMygRegUIARDcAQ..i&docid=9ybI18OCeNaFpM&w=967&h=600&q=tirol&ved=2ahUKEwjCn7jFm5b2AhXr7uAKHQaeAEMQMygRegUIARDcAQ)
+
 
 
 
