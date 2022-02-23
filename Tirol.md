@@ -13,13 +13,8 @@ With the founding of the European region Tyrol-South Tyrol-Trentino the area has
 
 Tirol [homepage](https://www.tirol.gv.at/en/)
 
-## Tirol in Spring
+### TABLE OF CONTENTS
 
-![](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.tirol-taxi.at%2Fbericht%2F19%2Ftirol.jpg&imgrefurl=https%3A%2F%2Fwww.tirol-taxi.at%2Fde-tirol&tbnid=rIVqLAcE97M3HM&vet=12ahUKEwjB-8Crlpb2AhWMh_0HHXNwAQsQMygXegUIARDoAQ..i&docid=K5DGvwFtb_eCtM&w=800&h=512&q=tirol&ved=2ahUKEwjB-8Crlpb2AhWMh_0HHXNwAQsQMygXegUIARDoAQ)
-
-## Tirol in Winter
-
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.kitzbueheler-alpen.com%2Fde%2Fstjo%2Foberndorf-in-tirol.html&psig=AOvVaw27kQ9rGTzODO63u_GHH2iz&ust=1645717706219000&source=images&cd=vfe&ved=0CAgQjRxqFwoTCOCxhayWlvYCFQAAAAAdAAAAABAE)
 
 
 
