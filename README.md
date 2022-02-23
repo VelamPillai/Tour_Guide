@@ -1,11 +1,11 @@
 # Vietnam is always in my heart
-![Vietnamese flag](/vnFlag.jpeg) \
+![Vietnamese flag](image/kk4.jpegvnFlag.jpeg) \
 Vietnam  is a country in Southeast Asia. The long-form name of the country is the Socialist Republic of Vietnam. The neighboring countries of Vietnam are China, Laos and Cambodia. Vietnam is one of five remaining countries that believe in communism. The capital of Vietnam is Hanoi. The biggest city is Ho Chi Minh City (formerly Saigon). There are about 94,444,200 people living in Vietnam.
 
 Vietnam was inhabited as early as the Paleolithic age. The first known Vietnamese nation during the first millennium BC centred on the Red River Delta, located in modern-day northern Vietnam. The Han dynasty annexed and put the Vietnamese under Chinese rule from 111 BC, until the first independent dynasty emerged in 939. Successive monarchical dynasties absorbed Chinese influences through Confucianism and Buddhism, and expanded southward to the Mekong Delta. The Nguyễn—the last imperial dynasty—fell to French colonisation in 1887. Following the August Revolution, the nationalist Viet Minh under the leadership of communist revolutionary Ho Chi Minh proclaimed independence from France in 1945. 
 [Read more](https://worldtravelfamily.com/vietnam-travel-blog/) 
 
-![Hanoi - The capital of Vietnam](/hanoi.jpeg) \
+![Hanoi - The capital of Vietnam](/Image/hanoi.jpeg) \
 Hanoi is the capital city of Vietnam. It covers an area of 3,358.6 km2. The second largest city in Vietnam, it consists of 12 urban districts, 1 district-leveled town and 17 rural districts. Located within the Red River Delta, Hanoi is the cultural and political centre of Vietnam.
 Hanoi traced its history back to the third century BCE, when a portion of the modern-day city served as the capital of the historic Vietnamese nation of Âu Lạc. Following the collapse of Âu Lạc, the city was part of Han China. In 1010, Vietnamese emperor Lý Thái Tổ established the capital of the imperial Vietnamese nation Đại Việt in modern-day central Hanoi, naming the city Thăng Long (literally "Ascending Dragon"). 
 
