@@ -1,5 +1,5 @@
 # Vietnam is always in my heart
-![Vietnamese flag](image/kk4.jpegvnFlag.jpeg) \
+![Vietnamese flag](/home/user/Desktop/Tour_Guide/Image/vnFlag.jpeg) \
 Vietnam  is a country in Southeast Asia. The long-form name of the country is the Socialist Republic of Vietnam. The neighboring countries of Vietnam are China, Laos and Cambodia. Vietnam is one of five remaining countries that believe in communism. The capital of Vietnam is Hanoi. The biggest city is Ho Chi Minh City (formerly Saigon). There are about 94,444,200 people living in Vietnam.
 
 Vietnam was inhabited as early as the Paleolithic age. The first known Vietnamese nation during the first millennium BC centred on the Red River Delta, located in modern-day northern Vietnam. The Han dynasty annexed and put the Vietnamese under Chinese rule from 111 BC, until the first independent dynasty emerged in 939. Successive monarchical dynasties absorbed Chinese influences through Confucianism and Buddhism, and expanded southward to the Mekong Delta. The Nguyễn—the last imperial dynasty—fell to French colonisation in 1887. Following the August Revolution, the nationalist Viet Minh under the leadership of communist revolutionary Ho Chi Minh proclaimed independence from France in 1945. 
