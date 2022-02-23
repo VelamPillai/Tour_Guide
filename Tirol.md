@@ -1,6 +1,6 @@
 # **TIROL**
 
-![](/images/altstadt-hall-in-tirol-sommer-sonnenaufgang.jpg)
+![Triol](/Image/altstadt-hall-in-tirol-sommer-sonnenaufgang.jpg)
 
 Tyrol; historically the Tyrole; Austrian German: Tirol ; Italian: Tirolo) is a historical region in the Alps—in Northern Italy and western Austria. The area was historically the core of the County of Tyrol, part of the Holy Roman Empire, Austrian Empire and Austria-Hungary, from its formation in the 12th century until 1919. In 1919, following World War I and dissolution of Austria-Hungary, it was divided into two modern administrative parts through the Treaty of Saint-Germain-en-Laye:
 
