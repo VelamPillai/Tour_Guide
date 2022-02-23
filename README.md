@@ -1,6 +1,12 @@
 # Vietnam is always in my heart
 
+
+
+
 ![Vietnamese flag](/Image/vnFlag.jpeg) 
+
+
+
 
 Vietnam  is a country in Southeast Asia. The long-form name of the country is the Socialist Republic of Vietnam. The neighboring countries of Vietnam are China, Laos and Cambodia. Vietnam is one of five remaining countries that believe in communism. The capital of Vietnam is Hanoi. The biggest city is Ho Chi Minh City (formerly Saigon). There are about 94,444,200 people living in Vietnam.
 
